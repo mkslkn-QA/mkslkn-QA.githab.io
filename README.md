@@ -1,1 +1,0 @@
-# mkslkn-QA.githab.io
